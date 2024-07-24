@@ -4,4 +4,4 @@
 
 #### But We're glad you found us!
 
-Please reach out to sierra@frisque.design for more information.
+Please reach out to leila@husky.dog for more information.
